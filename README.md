@@ -1,2 +1,2 @@
-# Delta
-not cheating script
+# Delta Hub
+admin he is doing it sideways
